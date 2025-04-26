@@ -16,6 +16,6 @@ I love designing secure, scalable, and automated systems that help businesses mo
 
 ---
 
-📫 **Reach me at:** [My LindIn Profile](www.linkedin.com/in/rajoo-uddin)
+📫 **Reach me at:** [My LinkedIn Profile](www.linkedin.com/in/rajoo-uddin)
 
 🚀 Always learning, always building.
